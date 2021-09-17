@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @voorheesgaming
+- 👀 I’m interested in people
+- 🌱 I’m currently learning your moms anatomy
+- 💞️ I’m looking to collaborate on videos
+- 📫 How to reach me : YOUTUBE
